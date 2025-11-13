@@ -2,7 +2,7 @@
 
 Members
 1. Name
-2. Name
+2. Joshua Argel B. Detchaca
 3. Name
 4. Name
 
